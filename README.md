@@ -1,0 +1,1 @@
+# Preliminar-de-wiki
